@@ -4,4 +4,8 @@ btw Undertale/Deltarune Rocks
 
 
 
-https://i.redd.it/9vure18e36af1.gif
+
+
+
+
+https://i.imgur.com/1qEFE7U.gif

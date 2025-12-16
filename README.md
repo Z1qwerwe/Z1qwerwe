@@ -1,2 +1,3 @@
-Hi my Name is Z1qwer or Nevio du pisskind ich verbrenne deine Familie
+Epic Gamer and Programmer (i know 5 lines of code)
 
+btw Undertale/Deltarune Rocks

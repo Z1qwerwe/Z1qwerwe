@@ -8,4 +8,4 @@ btw Undertale/Deltarune Rocks
 
 
 
-https://i.imgur.com/1qEFE7U.gif
+!https://i.imgur.com/1qEFE7U.gif
